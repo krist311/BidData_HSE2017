@@ -1,0 +1,1 @@
+# BidData_HSE2017
